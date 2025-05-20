@@ -28,5 +28,5 @@ I am Svitlana, ISTQB-certified QA Engineer with over 10 years of experience in q
 
 ## Contact Information
 
-Feel free to reach out to me via [LinkedIn](https://www.linkedin.com/in/svitlana-koshchii-54706187/) or [Email](mailto:svetlana.koshchy@gmail.com).
+Feel free to reach out to me via [LinkedIn](https://www.linkedin.com/in/svitlana-koshchii-54706187/) or [Email](mailto:skoshchii@gmail.com).
 
